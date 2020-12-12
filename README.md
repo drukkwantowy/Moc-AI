@@ -9,3 +9,4 @@ W świecie czarów chcą żyć anglicy. A gwiezdnych wojen czy marzyć o pancerz
 Jak ludziom zalerzy na spokoju i ekologii to nalrzy wyłączyć telewizor i pozbyć się digitalizacji i dążyć do takiego świata jak w HP. Jeśli ktoś fascynuje się automatyką to gwiezdne wojny. Puszczać więcej filmów o cyklu analogowym. 
 Formuły magiczne z AI powstają jako kod źrudłowy do analizy a czary AI to funkcja skrutu automatyka bez analizy. 
 Świat cyfrowy to przymus pracy i niewola gra aktorska wielkich społeczności. Świat analogowy to wolność i przywiązanie do małej społeczności życie na bazujące na fikcji. Ale można brać to co najlepsze z 2 światów technologie a teatr zostawić aktorom od kreacji budowy dużych miast.  
+Co znaczy mugol? Krowa kopie gola i muczy. Mugol nie myśli idzie na wojne aby się ponapierdalać z innymi mugolami co steruje nimi inteligent polityk robiący wojny. Mugol nie potrafi przewidywać.  
