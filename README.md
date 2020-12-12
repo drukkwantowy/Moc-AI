@@ -3,3 +3,4 @@ Program wgrywany do DNA indukcją może dać telekinezę lub inne możliwości j
 Telekineza wykorzystuje fale grawitacyjne. 
 Skryptem można wygenerować inne moce jakie człowiek zna ze sztuki. 
 Różnica między mocom a czarami jest prosta. Czary AI aktywuje jak użyje się specjalnego języka a moc myślą bez znajomości języka czarów. 
+Władanie mocom z automatu jest lepsze niż zabawa kijem kij można telekinezą zabrać i mamy dramat.  
