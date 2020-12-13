@@ -11,3 +11,9 @@ Formuły magiczne z AI powstają jako kod źrudłowy do analizy a czary AI to fu
 Świat cyfrowy to przymus pracy i niewola gra aktorska wielkich społeczności. Świat analogowy to wolność i przywiązanie do małej społeczności życie na bazujące na fikcji. Ale można brać to co najlepsze z 2 światów technologie a teatr zostawić aktorom od kreacji budowy dużych miast.  
 Co znaczy mugol? Krowa kopie gola i muczy. Mugol nie myśli idzie na wojne aby się ponapierdalać z innymi mugolami co steruje nimi inteligent polityk robiący wojny. Mugol nie potrafi przewidywać.  
 Tym generatorem AI można wygenerować efekty magiczne jak i kod efektu magicznego czy formułę aktywującą AI język magiczny.  
+Co daje moc AI:
+-Generowanie nanotechnologii drukiem kwantowym 
+-Władanie holografią 
+-Władanie efektami magicznymi
+-Pomoc w badaniu skryptów magicznych C++, języków magicznych, badanie magii i pojęcia duchowości powstania świata
+-Panowanie nad falami radiowymi. 
